@@ -3,15 +3,13 @@ INGREDIENTS - CREAMY SAUCE
 100 g cashew nuts
 250 ml oat milk
 juice of 1/4 of lemon
-½ tsp garlic powder
 
 INGREDIENTS - FACON
 2 king oyster mushrooms
 4 tbsp tamari
-2 tbsp ACV
 2 tbsp water
 2 tsp maple syrup
-2 tsp smoked paprika
+
 1 tbsp tomato purée
 1 tsp garlic powder
 pinch of salt
